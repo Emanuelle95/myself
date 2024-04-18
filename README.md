@@ -13,6 +13,6 @@ Some can infer that I'm a extrovert person (well, I actually am, heven't been fo
 
 My work field includes graphic design, web design, arts and customer service; I'm a music person, nostalgia person, a dog person and the most important of all: I'm a **FAMILY** person: my main reason to live, is to have my family together, laughin and been happy.
 
-!(C:/User/emanu/Desktop/smile.jpg)
+
 
 
